@@ -1,3 +1,3 @@
 
-💬 **Comms:** Discord `ohayashi_`
+
 
